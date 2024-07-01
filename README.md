@@ -1,2 +1,2 @@
 # GolfRush
-Source code of Tource's discountinued game.
+what are you expecting nothing was ever made lmao
